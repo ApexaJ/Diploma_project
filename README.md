@@ -1,0 +1,1 @@
+This is a Project For Selling Home-Made things which is for helping Small Organization and housewives to whom do not need to go for selling their products to doresteps for  this reason i have made this website
